@@ -4,4 +4,4 @@ heylo
 
 [ata](https://wapdy.atabook.org/)ㅤ
 
-[![spotify-github-profile](https://open.spotify.com/track/3wyrAqvuBzF3iCRzKkiTS5?si=PwkBYhuFSl6Giphs5qcTGw&utm_source=copy-link&pi=3zRxLCe3TOO9q)
+[![spotify-github-profile](https://open.spotify.com/track/3wyrAqvuBzF3iCRzKkiTS5?si=nFAJRDbJS_CG-LUeroStZw&utm_source=copy-link&rowId=494496544f5564a7)
